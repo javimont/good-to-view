@@ -60,13 +60,13 @@
 
 [Ray Sison](http://raysison.com/)
 
-[Tung](https://madebytung.com/) Cerrado
+[Tung](https://madebytung.com/) CLOSED
 
 [Pentagram](https://www.pentagram.com/)
 
 [Spin](http://spin.co.uk/)
 
-[Alex Trochut](xhttps://alextrochut.com/)
+[Alex Trochut](https://alextrochut.com/)
 
 [Sonnet](https://wearesonnet.com)
 
